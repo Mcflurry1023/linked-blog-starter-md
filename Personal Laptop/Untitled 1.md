@@ -1,0 +1,3 @@
+Question 1: how does the higher literacy and intelligence of the pigs cause an unequal power dynamic between the pigs and other animals. Is there true equality when only a small group holds all the knowledge
+
+The pigs did not proactively decide to have power over the other animals. It is very likely they are aware of their increased intelligence, but it was not their wish to hold power above the others as a majority of them still believed in the dream of Old Major.
