@@ -13,7 +13,7 @@ People will work hard to receive or preserve that taste of sweet nectar, even if
 
 Lenses for Chapter 3 (Psych, Allegorical, Stylistic, Symbolic)
 Psychological: Fear based compliance & Manipulation
-	How does Squealer convince the animals that pigs deserve milk and apples
+	How does Squealer convince the animals   that pigs deserve milk and apples
 
 		The pigs require the food for health and not for carnal pleasure, but it contains important nutrients that pigs require. And they are above requiring of the food because they are "more knowledgeable" than the rest and that they are the ones taking care of the animals. He fear mongers saying Mr. Jones will return IF they are not given the food. "It is for YOUR sake that we drink that milk and eat those apples... Jones would come back!"
 Cognitive Dissonance:
