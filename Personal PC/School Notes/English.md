@@ -1,0 +1,3 @@
+Orwell is clear with the correlations of certain characters such as Snowball and Napoleon with real individuals from the early years of the USSR. The early power struggle between Trotsky and Stalin led to a totalitarian rule with little to no freedom of speech.
+
+Snowball clearly represented Trotsky ever since chapter 4. Trotsky was the war commissar of the USSR and Snowball led the defense of the farm against the humans, and the views of Trotsky's faction are very similar to Snowball, wishing to rapidly industrialize. Napoleon's rise to power by exiling Snowball mirrors Stalin's power struggle against Trotsky and Trotsky's eventual exile. The triumvirate or Stalin's alliance against Trotsky parallels Squealer's propaganda and fear-mongering.
